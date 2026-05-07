@@ -1,4 +1,4 @@
-
+Notion for macOS best Plugin - quick search and database templates offers the most advanced Notion for macOS plugin, with quick search and database templates. Ideal for
 
 
 
